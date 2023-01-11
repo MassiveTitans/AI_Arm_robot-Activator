@@ -7,5 +7,5 @@ Our main goal is to develop the best and improve our lives even if only a little
 Please appreciate someone else's hard work!...
 
 
-telegramm: @Yaxshiliqov_Javlon
+telegramm: @Yaxshiliqov_Javlon                                                        v
 instagram: @_yaxshiliqov
